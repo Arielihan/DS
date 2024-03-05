@@ -13,6 +13,15 @@
 -------------
 ### week 1
 [PPT](https://docs.google.com/presentation/d/1XHngMihySFJdtavwBlt0JdG-9lrJmFY4-YDZOrP1eQU/edit#slide=id.g2ba272f3bd1_1_335)
+[影片](https://moodle3.ntnu.edu.tw/mod/url/view.php?id=750777)
+### week 2
+[PPT](https://moodle3.ntnu.edu.tw/mod/url/view.php?id=756443)
+[影片](https://moodle3.ntnu.edu.tw/mod/url/view.php?id=760154)
+### week 3
+[PPT](https://moodle3.ntnu.edu.tw/mod/url/view.php?id=760217)
+[影片]
+
+
 
 
 作業區
