@@ -20,6 +20,9 @@
 ### week 3
 [PPT](https://moodle3.ntnu.edu.tw/mod/url/view.php?id=760217)
 [影片]
+### week 3
+[PPT](https://moodle3.ntnu.edu.tw/mod/url/view.php?id=763821)
+[影片]
 
 
 
